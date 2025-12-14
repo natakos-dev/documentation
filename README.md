@@ -1,5 +1,5 @@
-![WhatsApp Image 2025-12-09 at 19 17 52_79c4e708](https://github.com/user-attachments/assets/c7abd168-0c63-4dd7-a126-ac2e7297e144)# documentation
-our story, progress, etc...
+# documentation
+our story, progress, debates, etc...
 
 ## our first debate
 ![Image](https://github.com/user-attachments/assets/46e52c44-c700-4cfa-8c31-90f98afe1efd)
@@ -19,7 +19,7 @@ our story, progress, etc...
 
 
 ## the blunder
-![WhatsApp Image 2025-12-09 at 19 17 52_79c4e708](https://github.com/user-attachments/assets/10ec7251-21dc-4ca7-8138-96c2ac126dd1)
+![WhatsApp Image 2025-12-09 at 19 17 52_79c4e708](https://github.com/user-attachments/assets/c7abd168-0c63-4dd7-a126-ac2e7297e144)
 
 ## the ideas
 ![WhatsApp Image 2025-12-09 at 21 19 51_5081ebad](https://github.com/user-attachments/assets/d53ab8e6-5153-4c62-9cbe-797f9205e443)
